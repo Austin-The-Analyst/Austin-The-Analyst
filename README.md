@@ -42,7 +42,7 @@ Scalable product development using APIs & microservices
 
 💼 LinkedIn : https://www.linkedin.com/in/austin-benjamin/
 🌍 https://myfol.io/austintheanalyst
-✉️ Email: austin.benjamin@email.com 
+✉️ Email: austinben711@outlook.com 
 
 
 "I believe in using data, code, and purpose to inspire change." — Snowice
